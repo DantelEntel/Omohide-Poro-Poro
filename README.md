@@ -6,4 +6,4 @@ Yazı Dizimi: Vuats
 
 Redaktör: Einherjar
 
-Kaynak: [JP BD Remux](https://nyaa.si/view/1581982 "JP BD Remux")
+Kaynak: [JPBD Remux](https://nyaa.si/view/1581982 "JPBD Remux")
