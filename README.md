@@ -6,4 +6,4 @@ Yazı Dizimi: Vuats
 
 Redaktör: Einherjar
 
-Kaynak: [JPBD Remux](https://nyaa.si/view/1581982 "JPBD Remux")
+Kaynak: [JP BDRip](https://nyaa.si/view/838731 "Kametsu")
