@@ -1,4 +1,4 @@
-## Projede Çalışanlar
+## Emeği Geçenler
 
 | Roller         | Ekip         |
 |----------------|--------------|
